@@ -1,2 +1,0 @@
-# kkkukkk.github.io
-myPage
